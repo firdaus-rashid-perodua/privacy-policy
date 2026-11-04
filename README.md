@@ -1,4 +1,4 @@
-# Privacy Policy for PRIME GO
+# Privacy Policy for P2 PRIME GO
 
 Last updated: 25/09/2026
 
